@@ -9,4 +9,4 @@ My interests include:
 - Cycle-based investment strategy. 
 
 ## News 
-- ...
+- 2023/08/15: PhD study at HKUST officially started. 
